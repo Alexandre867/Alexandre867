@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alexandre867
-- 👀 I’m interested in: physics, orbits, astrophysics, Rubik's cube
+- 👀 I’m interested in: physics, orbits, (astrophysics), Rubik's cube
 - 🌱 I’m currently learning: stuff
 - 💞️ I’m looking to collaborate on: ???
 - 📫 How to reach me: Whenever :) (alex.lezard@gmail.com)
